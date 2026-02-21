@@ -110,4 +110,4 @@ Fenomena ini lebih condong ke arah hiburan dan budaya digital.
 
 Dengan sentimen negatif hanya sebesar **18.6%** (jauh di bawah ambang batas krisis 35%), tidak diperlukan intervensi komunikasi atau strategi PR yang serius.
 
-Monitoring tetap berjalan
+Monitoring tetap berjalan untuk memastikan tidak terjadi lonjakan sentimen negatif di kemudian hari.
